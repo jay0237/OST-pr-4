@@ -1,1 +1,1 @@
-hello from jay joshi
+hello from jay joshi this is my academic practical
